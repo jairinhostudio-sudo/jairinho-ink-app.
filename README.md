@@ -1,1 +1,0 @@
-# jairinho-ink-app.
